@@ -4,6 +4,6 @@ We are a group that does Star Wars RP on roblox.
 We are a friendly place.
 You must join our discord to get a rank. We will soon have a Roblox Group. The link will be here when we do.
 This is our roblox group- Coming Soon
-This is our discord- https://discord.gg/6wq3ZzA
+This is our discord- 3rCdg5r
 We will raid the TGE here- https://www.roblox.com/games/473740671/TGE-Scarif
 May the force be with you.
